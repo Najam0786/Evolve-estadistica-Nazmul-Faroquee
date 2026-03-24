@@ -1,1 +1,0 @@
-# Evolve-estadistica-Nazmul-Faroquee
